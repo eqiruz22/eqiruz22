@@ -2,3 +2,4 @@
 - 📫 How to reach me ...
 - my email ahmadrifa11620@gmail.com / faisall86@live.com
 - https://twitter.com/faisalrifaa
+- https://www.linkedin.com/in/ahmad-rifa-feisal-017b7717b/
